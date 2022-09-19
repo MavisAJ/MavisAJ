@@ -6,5 +6,5 @@
 - 💬 Ask me about .ANYTHING..
 - 📫 How to reach me: ..twitter.
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact:Lokking forward to learning alot ...
+- ⚡ Fun fact:Looking forward to learning alot ...
 -->
